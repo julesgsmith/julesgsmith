@@ -7,7 +7,7 @@ Over the last few years I've worked in <strong>Project Management</strong> for c
 
 I've been a Fitness Instructor, a Princess at Warwick Castle (not as fun as it sounds) a HR Adminsitrator, Camera Operator, Video Editor, Producer and a Web Officer. 
 
-I still write film and tv scripts and dabble in a bit of short film production, but will be balancing that out with writing code! 
+I still write film and tv scripts and dabble in a bit of short film production, but will be balancing that out with problem solving and writing code! 
 
 <!---
 julesgsmith/julesgsmith is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
