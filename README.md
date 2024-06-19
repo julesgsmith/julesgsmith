@@ -5,8 +5,6 @@
 
 Over the last few years I've worked in <strong>Project Management</strong> for clients such as Jaguar Land Rover and Gymshark.
 
-I've been a Fitness Instructor, a Princess at Warwick Castle (not as fun as it sounds) a HR Administrator, Camera Operator, Video Editor, Producer and a Web Officer. 
-
 With a recent skills upgrade in Tech with the School of Code, I have many transferable skills and am known to my colleagues as intuitive and able to hit the ground running. 
 
 I love to take on new challenges and complex problems which I can turn into simple solutions. 
